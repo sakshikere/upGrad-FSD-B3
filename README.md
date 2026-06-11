@@ -33,6 +33,9 @@
 * Rahul Late
 * Ranveer Mali
 * Ranjeet Jadhav
-* Sakshi kere
+* Sakshi kere   : www.linkedin.com/in/sakshu-kere-545a57415
+
+
+
 * Pallavi upgrad
 
