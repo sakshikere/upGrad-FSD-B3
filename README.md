@@ -34,5 +34,5 @@
 * Ranveer Mali
 * Ranjeet Jadhav
 * Sakshi kere
-* Pallavi upgrad
+* Pallavi Nikum
 
