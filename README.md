@@ -40,4 +40,5 @@
 LINKEDIN LINK
 ## Linkdin Profiles of FSD B3 Students 
 Ranjeet jadhav => https://www.linkedin.com/feed/
+Rahul :-https://www.linkedin.com/in/rahul-late-19281440a/
 Ranveer Mali:- https://www.linkedin.com/in/ranveer-mali-5735a6322/
