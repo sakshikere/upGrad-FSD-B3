@@ -34,7 +34,10 @@
 * Ranveer Mali
 * Ranjeet Jadhav
 * Sakshi kere
-* Pallavi Nikum
+* Pallavi Nikum :- www.linkedin.com/in/pallavi-nikum-b5b94b415
+
 
 LINKEDIN LINK
+## Linkdin Profiles of FSD B3 Students 
 Ranjeet jadhav => https://www.linkedin.com/feed/
+Ranveer Mali:- https://www.linkedin.com/in/ranveer-mali-5735a6322/
